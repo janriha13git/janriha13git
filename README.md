@@ -1,4 +1,6 @@
-## Hi there 👋
+PhD student at Institute of Parasitology of Czech Adacemy of Sciences at České Budějovice 🧬🦠🌿
+
+🇨🇿 Czechia 🇨🇿
 
 <!--
 **janriha13git/janriha13git** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
